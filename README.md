@@ -1,0 +1,1 @@
+# case-study-ifsm-461-systems-analysis-and-design-precision-electronic-parts-solved
